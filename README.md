@@ -1,1 +1,1 @@
-# zengetsusai2025.github.io
+# z
